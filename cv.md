@@ -7,10 +7,10 @@
 ====
 
 - **Phone:** +7 910 4457008
-- **Email:** [moonstrike2018@gmail.com] (moonstrike2018@gmail.com)
-- **Discord:** [@moonstrike2018] (@moonstrike2018)
+- **Email:** [moonstrike2018@gmail.com] 
+- **Discord:** [@moonstrike2018] 
 - **Linkedin** [Denis Veremeenco](https://www.linkedin.com/in/denis-veremeenco-70978a242/)
-- **Telegram** [@moonstrike2018] (@moonstrike2018)
+- **Telegram** [@moonstrike2018] 
 
 ## Skills
 
